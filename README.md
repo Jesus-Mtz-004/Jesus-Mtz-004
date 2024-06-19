@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... cualquier proyecto de programacion 
 - 📫 How to reach me ... en mi correo: albertomtz636@gmail.com
 - 😄 Pronouns: Chucho
-- ⚡ Fun fact: Que da risa
+- ⚡ Fun fact: Me gusta mucho la natacion 
 
 <!---
 Jesus-Mtz-004/Jesus-Mtz-004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
